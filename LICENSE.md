@@ -1,4 +1,4 @@
-# 
+# premium JetBrains Rider for PC | JetBrains Rider for Windows Workflow | snippets + docker-support is the best JetBrains Rider for PC | JetBrains Rider for Windows workflow,
 
 
 
